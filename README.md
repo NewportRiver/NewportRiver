@@ -18,6 +18,7 @@ Founder & Managing Director | Lead Systems Engineer | AI Researcher
 - 🎵 BMI-affiliated songwriter with music in over 20 languages  
 - 🔬 Background in aerospace, marine systems, architecture, and systems design  
 - 📚 Author of *The Path of Energy and AI* — [Amazon Author Page »](https://www.amazon.com/author/markanthonybartholomew)
+- 🎮 Gamer, storyteller, and creative technologist blending spirit, science, and strategy
 
 ---
 
